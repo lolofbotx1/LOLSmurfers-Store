@@ -1,7 +1,7 @@
 ## Welcome to LOLSmurfers Store
 
 ##DESCRIPTION:
-Level 30 League of Legends Account
+Level 30 League of Legends Account/n
 Region / Server: OCEANIA (OCE) 
 72 Hours Warranty (Want up to 30 days? Read below!) 
 100% Account Access 
