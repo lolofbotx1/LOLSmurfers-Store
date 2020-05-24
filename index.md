@@ -1,15 +1,24 @@
 ## Welcome to LOLSmurfers Store
 
 ##DESCRIPTION:
-Level 30 League of Legends Account/n
-Region / Server: OCEANIA (OCE) 
+Level 30 League of Legends Account
+
+Region / Server: OCEANIA (OCE)
+
 72 Hours Warranty (Want up to 30 days? Read below!) 
+
 100% Account Access 
-Unverified Email | Changeable Email and Password 
+
+Unverified Email | Changeable Email and Password
+
 Top Quality for Unranked | Clean MMR
+
 Honor Level 2
+
 20+ Capsules
+
 20K+ BE
+
 
 ### Markdown
 
