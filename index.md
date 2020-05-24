@@ -2,13 +2,13 @@
 
 ## DESCRIPTION
 
-Level 30 League of Legends Account
+Level 30 League of Legends Account |
 
-Region / Server: OCEANIA (OCE)
+Region / Server: OCEANIA (OCE) |
 
-72 Hours Warranty (Want up to 30 days? Read below!) 
+72 Hours Warranty (Want up to 30 days? Read below!) |
 
-100% Account Access 
+100% Account Access |
 
 Unverified Email | Changeable Email and Password
 
