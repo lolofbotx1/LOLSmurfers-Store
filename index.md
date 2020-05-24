@@ -14,11 +14,11 @@ Unverified Email | Changeable Email and Password
 
 Top Quality for Unranked | Clean MMR
 
-Honor Level 2 |
+Honor Level 2  |
 
-20+ Capsules |
+20+ Capsules  |
 
-20K+ BE |
+20K+ BE  |
 
 
 ### Markdown
