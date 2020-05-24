@@ -1,6 +1,7 @@
-## Welcome to LOLSmurfers Store
+# Welcome to LOLSmurfers Store
 
-##DESCRIPTION:
+## DESCRIPTION:
+
 Level 30 League of Legends Account
 
 Region / Server: OCEANIA (OCE)
