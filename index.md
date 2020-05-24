@@ -1,6 +1,6 @@
 # Welcome to LOLSmurfers Store
 
-## DESCRIPTION:
+## DESCRIPTION
 
 Level 30 League of Legends Account
 
